@@ -16,7 +16,9 @@ You excuse SA'ers like Potemer or something
 
 You make fun of tone indicators 
 
-You know you're really clingy or obsseive but don't do much to improve. I genuinely had a lot of bad experiences with you people and I advise you to not be friends with me. I do not like super obsseive or clingy people at all man
+You know you're really clingy or obsseive but don't do much to improve. I genuinely had a lot of bad experiences with you people and I advise you to not be friends with me. I do not like super obsseive or clingy people at all man. Or people who control a lot. 
+
+people who guiltrip in any way possible
 
 </p>
 
@@ -38,5 +40,7 @@ Don't harass me n my friends thanks you
 I can be pretty distant sometimes if I felt like I've done something wrong or the atmosphere/vibe changed. 
 
 Tired a lot
+
+don't feel obligated to sit with me
 
 Don't force me to stay on tab with you, it's hard and also seems a bit weird unless it's super important
